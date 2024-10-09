@@ -1,2 +1,2 @@
-Ingredients: avocado, lemon, salt
+Ingredients: avocado, lime, salt
 Instructions
